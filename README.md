@@ -2,7 +2,7 @@
 
 👀 I’m interested in designing and developing apps that run in a browser, tablet, or smartphone
 
-🌱 I’m currently learning design systems using Storybook
+🌱 I’m currently expanding my knowledge of design systems using Storybook
 
 💞️ I’m looking to collaborate on internal or consumer facing digital apps that users use to do stuff
 
