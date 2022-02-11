@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on internal or consumer facing digital apps that users use to do stuff
 
-📫 How to reach me best is by sms text
+📫 How to reach me best is by sms text (914)eight26-48zero8
 
 <!---
 lrtico/lrtico is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
